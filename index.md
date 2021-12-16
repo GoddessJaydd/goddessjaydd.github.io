@@ -24,3 +24,5 @@ A Podcast for growth and perosnal development. Glen Coco and I dive into some co
 
 ### Contact 
 Thank you for visiting our site. If you need to reach us please email: goddesstheiii#gmail.com
+
+<a href="https://www.bluehost.com/track/goddesstheiii/" target="_blank"> <img border="0" src="https://bluehost-cdn.com/media/partner/images/goddesstheiii/468x60/486x60PW.png"> </a>
