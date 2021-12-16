@@ -2,7 +2,6 @@
 
 Hey welcome to my Page. I am a freelance webdesigner and this is my portfolio.
 
-##
 
 ## Projects
 
